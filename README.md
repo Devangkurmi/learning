@@ -1,4 +1,4 @@
 # learning
-Author Dewang patel <hr>
+Author Dewang kurmi patel <hr>
 Ethical Create <br>
 Emeperer
